@@ -1,0 +1,2 @@
+# kata7
+kata 7 IS2 SAMUEL DÍAZ GONZÁLEZ
